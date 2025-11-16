@@ -2,4 +2,4 @@ andes / ilya
 
 he
 
-21 y.o IT major student
+21 y.o, student majoring in IT
