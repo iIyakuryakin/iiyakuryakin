@@ -1,5 +1,5 @@
-andes / ilya
+ilya waverly
 
-he
+she
 
 21 y.o, student majoring in IT
