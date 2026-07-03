@@ -1,2 +1,3 @@
-hi i'm ilya kuryakin from the big The Man From U.N.C.L.E please check that movie out thanks (the new one)
-main interests are TMfU, r:1999 (HEAYV on chapter 11), minecraft bedwars
+i'm not making this shit good
+
+hai the name's ilya, i use any pronouns but she/her is more preferred, my current interests are Absolute Batman [mainly joker, twoface, and riddler], the man from uncle, and literally any lego games, yes, ANY, i used to play lego scooby doo, starwars, marvel, and batman (all on ps3)
