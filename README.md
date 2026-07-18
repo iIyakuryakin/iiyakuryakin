@@ -1,3 +1,4 @@
+
 ilya, she/her
 
 19 minors dni unless fg bye
@@ -9,3 +10,5 @@ NOT LOOKING FOR FRIENDS thank you
 if youre speaking bullshits to me i will hide you
 
 i like dc villains, specifically joker, mr freeze, bane, and the absolute trio goats eddie oswald harvey
+
+<img src="https://komarev.com/ghpvc/?username=WaverIy&style=flat-square&color=000000&label=peeking are you" alt="profile view counter" width="100" align="center">
