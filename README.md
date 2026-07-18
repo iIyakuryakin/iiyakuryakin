@@ -1,9 +1,11 @@
-i'm not making this shit good
+ilya, she/her
 
-hai the name's ilya, i use any pronouns but she/her is more preferred, my current interests are Absolute Batman [mainly joker, twoface, and riddler], the man from uncle, and literally any lego games, yes, ANY, i used to play lego scooby doo, starwars, marvel, and batman (all on ps3)
+19 minors dni unless fg bye
 
-im afk most of the time on pt, not looking for friends either so strictly dni unless @waverIy @galliambic @e1nsane and @tehmeerah
+@waverIy @e1nsane @brainLESS07 @galliambic the fg in mention btw kill them they all suck
 
-i'm fine with small interactions like giving compliments, booping, sitting together though!!!
+NOT LOOKING FOR FRIENDS thank you
 
-i'm 19, minors dni unless friends already
+if youre speaking bullshits to me i will hide you
+
+i like dc villains, specifically joker, mr freeze, bane, and the absolute trio goats eddie oswald harvey
